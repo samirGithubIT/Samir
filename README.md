@@ -9,7 +9,7 @@
 - 📈 Open-source contributor & tech enthusiast
 - 🎓 Learning and exploring AI & cloud technologies
 - 🌍 Love working with global teams & communities
-- 📬 Reach me at *tarikulat124@gmail.com*
+- 📬 Reach me at *assamiakber@gmail.com*
 
 ---
 
